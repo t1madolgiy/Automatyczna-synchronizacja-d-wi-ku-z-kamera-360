@@ -1,1 +1,0 @@
-# Automatyczna-synchronizacja-d-wi-ku-z-kamera-360
